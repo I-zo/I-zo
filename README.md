@@ -3,7 +3,8 @@
 - 🌱 medium,pinterest
 - 💞️isaac contributor
 - 📫 How to reach me ...
-  Isaac rubowa on medium and pinterest
+  Isaac rubowa on medium,ANKUNDA pinterest
+  follow me ,buy me
   
   what's app +2560781464898 
 <!---
